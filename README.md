@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AndyMacht
 - 👀 I’m interested in DJing, Music Production, 
-- 🌱 I’m currently learning Proggamig
+- 🌱 I’m currently learning Proggramig
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
